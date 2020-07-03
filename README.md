@@ -1,2 +1,1 @@
-# heydoulikeanime
-"HEY DO U LIKE ANIME" A WILD ANIME APPEARED 
+
